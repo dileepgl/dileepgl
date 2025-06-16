@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently student <br>
+Hi I'm Dileep Gowda <br>
 
 
 ## 🌐 Socials:
